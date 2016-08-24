@@ -1,0 +1,1 @@
+# seredaphoto.github.io
